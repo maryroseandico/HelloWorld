@@ -1,2 +1,2 @@
 # HelloWorld
-Hello, Hello, Hello! I'm Mary Rose.
+Hello, Hello, Hello! I'm Mary Rose V. Andico. BSIT(Information Technology)
